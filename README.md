@@ -34,7 +34,7 @@ better watch from afar (more melody to the end)
 
 better swap ya handle to naught
 better swap it before 
-getting ahold of the switch ya
+getting ahold of the switch ya (can't right the wrong)
 plug it bitch
 net so slow
 net so slow
