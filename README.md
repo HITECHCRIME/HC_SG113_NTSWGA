@@ -42,10 +42,10 @@ net so slow
 net so slow
 net so slow
 net so slow
-caught in the net so slow - uu  /// everyday counting up checks - uu
-ya cannot reach them heights - ya       /// yeah young nigga up next - uu
-caught in the net so slow - uu          /// everyday counting up checks - uu
-better watch from afar     /// better give me respect 
+caught in the net so slow - uu
+ya cannot reach them heights - ya       
+caught in the net so slow - uu          
+better watch from afar     
 
 better swap ya handle to naught
 better swap it before 
@@ -64,8 +64,8 @@ if you really turn up i'm done 7
 
 maybe i should tough it out - you
 once said dust goes down - uu
-x
-now i doubt it will ever happen blood 7
+x?
+now i doubt it will ever happen blood
 
 caught in the net so slow - uu          
 ya cannot reach them heights - ya (down)     
