@@ -51,8 +51,6 @@ blowing them chances to fold yeah
 prep for a breach - wait what 
 withhold the vital data (vital organs - uu)
 don’t give them to witch - uu
-(brujas were right)
-(million of failures to win yeah)
 
 
 most of the days just drifting me up - so 
@@ -99,6 +97,9 @@ sordid blatant hypocrisy shown
 soooometimes i get things right
 even if involves
 losses some abound
+
+BRUJAS were RIGHT 'BOUT one thing
+MILLION OF FAILURES TO WIN YEAH
 
 all my thoughts used to roll with the tide
 fall with emotions, rationals, lost in the pride
