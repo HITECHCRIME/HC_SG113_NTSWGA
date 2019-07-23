@@ -122,6 +122,7 @@ fall with emotions, rationals, lost in the pride
 so strong can’t deny
 it’s the price of honour
 to stand tall but withdraw
+red is the color of our squad
 
 ooh shit that's a hitech crime
 
