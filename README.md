@@ -30,7 +30,7 @@ better watch from afar
 caught in the net so slow - uu         
 ya cannot reach them heights - ya (down)       
 caught in the net so slow - uu          
-better watch from afar (more melody to the end)                  
+better watch (works) from afar (more melody to the end)                  
 
 better swap ya handle to naught
 better swap it before 
