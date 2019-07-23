@@ -35,8 +35,7 @@ better swap ya handle to naught
 better swap it before
 getting ahold of the switch ya 
 plug it bitch, can't right the wrong
-
-net so slow, net so slow
+net so slow
 net so slow, net so slow
 net so slow, net so slow
 net so slow caught in the net so slow - uu
@@ -48,16 +47,19 @@ better swap it before
 getting ahold of the switch ya
 plug it bitch
 
-blowing them chances to fold yeah (million of chances to win yeah)
+blowing them chances to fold yeah 
 prep for a breach - wait what 
 withhold the vital data (vital organs - uu)
 don’t give them to witch - uu
+(brujas were right)
+(million of failures to win yeah)
+
 
 most of the days just drifting me up - so 
 slide off the scales - now (i can't believe in da-ta)
 can’t believe in my data, just sayin'             (can’t believe what i’m - saying)
 if you really turn up i'm done (i'm already dead - now)
-(if it turns out i'm already dead - now
+(if it -really- turns out i'm -already- dead - now
 now
 maybe i should tough it out - you
 once said dust goes down - uu (how past goes down)
