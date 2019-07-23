@@ -61,8 +61,9 @@ slide off the scales - now
 can’t believe what i’m - saying
 if you really turn up i'm done 7
 
-maybe i should tough it out - once
-you said dust goes down - uu
+maybe i should tough it out - you
+once said dust goes down - uu
+x
 now i doubt it will ever happen blood 7
 
 caught in the net so slow - uu          
