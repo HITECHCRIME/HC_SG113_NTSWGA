@@ -16,17 +16,19 @@ Description.
 ## Lyrics
 
 ```
+aye aye ya
+mothnode
 net swagga
 
-caught in the net so slow - uu          /// everyday counting up checks - uu
-ya cannot reach them heights - ya       /// yeah young nigga up next - uu
-caught in the net so slow - uu          /// everyday counting up checks - uu
-better watch from afar                  /// better give me respect  
+caught in the net so slow - uu          
+ya cannot reach them heights - ya (down)     
+caught in the net so slow - uu          
+better watch from afar                 
 
-caught in the net so slow - uu          /// everyday counting up checks - uu
-ya cannot reach them heights - ya       /// yeah young nigga up next - uu
-caught in the net so slow - uu          /// everyday counting up checks - uu
-better watch from afar                  /// better give me respect  
+caught in the net so slow - uu         
+ya cannot reach them heights - ya (down)       
+caught in the net so slow - uu          
+better watch from afar                   
 
 better swap ya handle to naught
 better swap it before 
@@ -39,25 +41,55 @@ net so slow
 net so slow
 net so slow
 net so slow
-net so
 caught in the net so slow - uu  /// everyday counting up checks - uu
-ya cannot reach them heights - uu       /// yeah young nigga up next - uu
+ya cannot reach them heights - ya       /// yeah young nigga up next - uu
 caught in the net so slow - uu          /// everyday counting up checks - uu
-better watch from afar                       /// better give me respect 
+better watch from afar     /// better give me respect 
+
+better swap ya handle to naught
+better swap it before 
+getting ahold of the switch ya
+plug it bitch
 
 blowing them chances to fold - uu
 prep for a breach - wait what 
-withhold the damn data - uu 
+withhold the vital data - uu 
 don’t give to witch - uu
 
 most of the days just drifting me up - so 
-slide the damn scale, 
-can’t believe what i’m saying
-if you really turn up 7
+slide off the scales - now
+can’t believe what i’m - saying
+if you really turn up i'm done 7
 
 maybe i should tough it out - once
 you said dust goes down - uu
 now i doubt it will ever happen blood 7
+
+caught in the net so slow - uu          
+ya cannot reach them heights - ya (down)     
+caught in the net so slow - uu          
+better watch from afar                 
+
+caught in the net so slow - uu         
+ya cannot reach them heights - ya (down)       
+caught in the net so slow - uu          
+better watch from afar                   
+
+better swap ya handle to naught
+better swap it before 
+getting ahold of the switch ya
+plug it bitch
+net so slow
+net so slow
+net so slow
+net so slow
+net so slow
+net so slow
+net so slow
+caught in the net so slow - uu  /// everyday counting up checks - uu
+ya cannot reach them heights - ya       /// yeah young nigga up next - uu
+caught in the net so slow - uu          /// everyday counting up checks - uu
+better watch from afar     /// better give me respect 
 
 blame for thirst - old dychotomy 8
 sordid blatant hypocrisy shown
