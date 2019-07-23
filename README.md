@@ -254,3 +254,6 @@ so strong can’t deny
 ## Notes
 
 ## Music Video
+
+Greyhooded figure in a square black room, slowmo mixed with mid velocity stabilized Osmo Pocket footage, strobe LitraTorches with colors flashing. Rotating circles with the LitraTorches on floor and ceiling (symmetrical). Sort of opening a portal.
+Quick cuts between the same room empty with strobe light (signifies the urges and constant dynamic thought) and crowded with lots of smoke and lasers with kind of stable light (represents grounding among the tribe).
