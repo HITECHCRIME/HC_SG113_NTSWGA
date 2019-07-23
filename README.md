@@ -59,9 +59,9 @@ withhold the vital data - uu (vital organs - uu)
 don’t give to witch - uu
 
 most of the days just drifting me up - so 
-slide off the scales - now
-can’t believe what i’m - saying
-if you really turn up i'm done (i'm already dead)
+slide off the scales - now (can't believe in da-ta)
+can’t believe what i’m - saying 
+if you really turn up i'm done (i'm already dead - now)
 
 maybe i should tough it out - you
 once said dust goes down - uu
