@@ -72,8 +72,6 @@ now i doubt it will ever happen blood
 x? with everything that's been going on?
 (happen blood - scream)
 
-
-
 caught in the net so slow - uu          
 i cannot reach them heights - ya (down)     
 caught in the net so slow - uu          
@@ -107,8 +105,17 @@ soooometimes i get things right
 even if involves
 losses some abound
 
-BRUJAS were RIGHT 'BOUT one thing
+from roots to the top 
+that's the promise abound
+BRUJAS were RIGHT 'BOUT one thing 
 MILLION OF FAILURES TO WIN YEAH
+
+AND EVEN IF I WIN WHAT'S IN MY HEART
+ALONE EVEN  HOLDS SYNERGY in ITS CORE
+IT'S ONLY FOR ME AS OTHERS ARE APART
+FROM MY THOUGHTS FROM MY STRATAS
+I GO CRAZY FROM
+
 
 all my thoughts used to roll with the tide
 fall with emotions, rationals, lost in the pride
@@ -261,3 +268,4 @@ Greyhooded figure in a square black room, slowmo mixed with mid velocity stabili
 Quick cuts between the same room empty with strobe light (signifies the urges and constant dynamic thought) and crowded with lots of smoke and lasers with kind of stable light (represents grounding among the tribe).
 
 Commentary on bandwidth throttling and internet scarcity.
+Caught in a bad relationship and controlling personalities.
