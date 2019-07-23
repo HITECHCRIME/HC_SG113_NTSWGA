@@ -63,9 +63,9 @@ slide off the scales - now (i can't believe in da-ta)
 can’t believe in my data, just sayin'             (can’t believe what i’m - saying)
 if you really turn up i'm done (i'm already dead - now)
 (if it -really- turns out i'm -already- dead - now
-
+(if it fuckin' turns out i'm already dead - now
 now
-
+now now
 maybe i should tough it out - you
 once said dust goes down - uu (how past goes down)
 x? with everything that's been going on?
