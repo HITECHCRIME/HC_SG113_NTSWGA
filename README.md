@@ -16,20 +16,22 @@ Description.
 ## Lyrics
 
 ```
-caught in the net so slow - uu          /// everyday counting up checks - uu
-ya cannot reach them heights - uu       /// yeah young nigga up next - uu
-caught in the net so slow - uu          /// everyday counting up checks - uu
-ya watch from afar                      /// better give me respect  
+net swagga
 
 caught in the net so slow - uu          /// everyday counting up checks - uu
-ya cannot reach them heights - uu       /// yeah young nigga up next - uu
+ya cannot reach them heights - ya       /// yeah young nigga up next - uu
 caught in the net so slow - uu          /// everyday counting up checks - uu
-ya watch from afar                      /// better give me respect  
+better watch from afar                  /// better give me respect  
 
-better swap ya handle  
-better swap
-when i'm ahold of the switch -
+caught in the net so slow - uu          /// everyday counting up checks - uu
+ya cannot reach them heights - ya       /// yeah young nigga up next - uu
+caught in the net so slow - uu          /// everyday counting up checks - uu
+better watch from afar                  /// better give me respect  
 
+better swap ya handle to naught
+better swap it before 
+getting ahold of the switch ya
+plug it bitch
 net so slow
 net so slow
 net so slow
@@ -38,16 +40,15 @@ net so slow
 net so slow
 net so slow
 net so
-
-caught in the net so slow - uu          /// everyday counting up checks - uu
+caught in the net so slow - uu  /// everyday counting up checks - uu
 ya cannot reach them heights - uu       /// yeah young nigga up next - uu
 caught in the net so slow - uu          /// everyday counting up checks - uu
-ya watch from afar                      /// better give me respect 
+better watch from afar                       /// better give me respect 
 
-blowing chances to fold - uu
+blowing them chances to fold - uu
 prep for a breach - wait what 
-and withholding all the data
-don’t give to the witch - uu
+withhold the damn data - uu 
+don’t give to witch - uu
 
 most of the days just drifting me up - so 
 slide the damn scale, 
