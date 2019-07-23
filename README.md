@@ -116,6 +116,8 @@ so strong can’t deny
 it’s the price of honour
 to stand tall but withdraw
 
+ooh shit that's a hitech crime
+
 everyday counting up checks - uu -          / caught in the net so slow - uu
 
 yeah young nigga up next - uu                  / 
