@@ -68,8 +68,8 @@ now
 now now
 maybe i should tough it out - you
 once said dust goes down - uu (how past goes down)
-x? with everything that's been going on?
 now i doubt it will ever happen blood
+x? with everything that's been going on?
 (happen blood - scream)
 
 
