@@ -17,49 +17,42 @@ Description.
 
 ```
 aye aye ya
-mothnode
-net swagga
+mothnode net swagga
 fucker
 
 caught in the net so slow - uu          
 ya cannot reach them heights - ya (down)     
-caught in the net so slow - uu          
+caught in the net so slow - a          
 better watch from afar        
 (can't right the wrong)
 
-caught in the net so slow - uu         
+caught in the net so slow - u        
 ya cannot reach them heights - ya (down)       
-caught in the net so slow - uu          
+caught in the net so slow - u          
 better watch (works) from afar (more melody to the end)                  
-
 better swap ya handle to naught
-better swap it before 
-getting ahold of the switch ya (can't right the wrong)
-plug it bitch
-net so slow
-net so slow
-net so slow
-net so slow
-net so slow
-net so slow
-net so slow
-caught in the net so slow - uu
+better swap it before
+getting ahold of the switch ya 
+plug it bitch, can't right the wrong
+net so slow, net so slow
+net so slow, net so slow
+net so slow, net so slow
+net so slow caught in the net so slow - uu
 ya cannot reach them heights - ya       
 caught in the net so slow - uu          
 better watch from afar     
-
 better swap ya handle to naught
-better swap it before 
+better swap it before
 getting ahold of the switch ya
 plug it bitch
 
-blowing them chances to fold - uu (million of chances to win yeah)
+blowing them chances to fold yeah (million of chances to win yeah)
 prep for a breach - wait what 
-withhold the vital data - uu (vital organs - uu)
-don’t give to witch - uu
+withhold the vital data (vital organs - uu)
+don’t give them to witch - uu
 
 most of the days just drifting me up - so 
-slide off the scales - now (can't believe in da-ta)
+slide off the scales - now (i can't believe in da-ta)
 can’t believe what i’m - saying 
 if you really turn up i'm done (i'm already dead - now)
 
