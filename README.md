@@ -72,6 +72,8 @@ now i doubt it will ever happen blood
 x? with everything that's been going on?
 (happen blood - scream)
 
+now write it down
+
 caught in the net so slow - uu          
 i cannot reach them heights - ya (down)     
 caught in the net so slow - uu          
