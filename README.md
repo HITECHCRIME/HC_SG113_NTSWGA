@@ -21,19 +21,20 @@ mothnode net swagga
 fucker
 
 caught in the net so slow - uu          
-ya cannot reach them heights - ya (down)     
+i cannot reach them heights - ya (down)     
 caught in the net so slow - a          
 better watch from afar        
-(can't right the wrong)
 
 caught in the net so slow - u        
-ya cannot reach them heights - ya (down)       
+i cannot reach them heights - ya (down)       
 caught in the net so slow - u          
-better watch (works) from afar (more melody to the end)                  
+better watch (works) from afar (more melody to the end)  
+
 better swap ya handle to naught
 better swap it before
 getting ahold of the switch ya 
 plug it bitch, can't right the wrong
+
 net so slow, net so slow
 net so slow, net so slow
 net so slow, net so slow
@@ -53,22 +54,22 @@ don’t give them to witch - uu
 
 most of the days just drifting me up - so 
 slide off the scales - now (i can't believe in da-ta)
-can’t believe what i’m - saying 
+can’t believe in my data, just sayin'             (can’t believe what i’m - saying)
 if you really turn up i'm done (i'm already dead - now)
 
 maybe i should tough it out - you
-once said dust goes down - uu
+once said dust goes down - uu (how past goes down)
 x?
 now i doubt it will ever happen blood
 (happen blood - scream)
 
 caught in the net so slow - uu          
-ya cannot reach them heights - ya (down)     
+i cannot reach them heights - ya (down)     
 caught in the net so slow - uu          
 better watch from afar                 
 
 caught in the net so slow - uu         
-ya cannot reach them heights - ya (down)       
+i cannot reach them heights - ya (down)       
 caught in the net so slow - uu          
 better watch from afar                   
 
