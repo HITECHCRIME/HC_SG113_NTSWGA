@@ -16,7 +16,7 @@ Description.
 ## Lyrics
 
 ```
-aye aye ya
+aye aye aye ya
 mothnode net swagga
 fucker
 
