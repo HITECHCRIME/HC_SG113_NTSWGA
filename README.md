@@ -54,9 +54,9 @@ getting ahold of the switch ya
 
 plug it bitch
 
-blowing them chances to fold yeah 
-prep for a breach - wait what 
-withhold the vital data (vital organs - uu)
+blowing them chances to fold yeah            /// here goes a gritty low voice
+prep for a breach - wait what                /// here goes a gritty low voice
+withhold the vital data (vital organs - uu)  /// here goes a gritty low voice
 don’t give them to witch - uu
 most of the days just drifting me up - so 
 slide off the scales - now (i can't believe in da-ta)
