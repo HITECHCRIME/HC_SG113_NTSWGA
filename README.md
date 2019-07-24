@@ -54,9 +54,9 @@ getting ahold of the switch ya
 
 plug it bitch
 
-blowing them chances to fold yeah            /// here goes a gritty low voice
-prep for a breach - wait what                /// here goes a gritty low voice
-withhold the vital data (vital organs - uu)  /// here goes a gritty low voice
+blowing them chances to fold yeah              /// here goes a gritty low voice
+prep for a breach - wait what                  /// here goes a gritty low voice
+withhold the vital data (vital organs - uu)    /// here goes a gritty low voice
 don’t give them to witch - uu
 most of the days just drifting me up - so 
 slide off the scales - now (i can't believe in da-ta)
@@ -95,10 +95,10 @@ net so slow
 net so slow
 net so slow
 net so slow
-caught in the net so slow - uu  /// everyday counting up checks - uu
+caught in the net so slow - uu          /// everyday counting up checks - uu
 ya cannot reach them heights - ya       /// yeah young nigga up next - uu
 caught in the net so slow - uu          /// everyday counting up checks - uu
-better watch from afar     /// better give me respect 
+better watch from afar                  /// better give me respect 
 
 blame for thirst - old dychotomy 8
 sordid blatant hypocrisy shown
