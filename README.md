@@ -272,3 +272,60 @@ Quick cuts between the same room empty with strobe light (signifies the urges an
 
 Commentary on bandwidth throttling and internet scarcity.
 Caught in a bad relationship and controlling personalities.
+
+/// MOTHNODE_ NTSWGA [PROTO]
+
+/// TODAY’S EXPERIMENTATION BROUGHT THIS AROUND. AS USUAL NEEDS WORK BUT BLOODY HELL, I’M EVEN BOUNCING TO THE RHYTHM AND THAT DOESN’T HAPPEN ALL THAT OFTEN.
+. /// MICROLABEL_ @hitechcrime /// USER_ @mothnode
+/// BEAT_ @callmegbeatz /// TARGET_ HC_SG113_NET_SWAGGA (NAME WILL CHANGE) /// STATUS_ FULL SONG PROTOTYPE
+.
+/// LISTEN TO REGULAR SONG DEV /// MORE ACCESS @mothnode
+.
+/// LYRICS
+
+aye aye ya
+mothnode
+net swagga
+fucker
+
+caught in the net so slow - uu
+ya cannot reach them heights - ya
+caught in the net so slow - uu
+better watch from afar
+caught in the net so slow - uu
+ya cannot reach them heights - ya
+caught in the net so slow - uu
+better watch from afar
+better swap ya handle to naught
+better swap it before
+getting ahold of the switch ya
+plug it bitch, net so slow
+net so slow
+net so slow
+net so slow
+net so slow
+net so slow
+net so slow
+caught in the net so slow - uu
+ya cannot reach them heights - ya
+caught in the net so slow - uu
+better watch from afar
+better swap ya handle to naught
+better swap it before
+getting ahold of the switch ya
+plug it bitch
+
+blowing them chances to fold - uu
+prep for a breach - wait what
+withhold the vital data - uu
+don’t give to witch - uu
+
+most of the days just drifting me up - so slide off the scales - now
+can’t believe what i’m - saying
+if you really turn up i am done
+
+maybe i should tough it out - you
+once said dust goes down - uu
+now i doubt it will ever happen blood (...)
+.
+/// NODE STEMS #hitechcrime #humanedge #lilpump #edm #multilingual #producer #systech #baldgang #beardgang #creator #twitchcreative #startup #inprogress #songpractice #trapmusic #trapmetal #trapcore #aggrotrap #internet #swag #recordedonmobile
